@@ -1,0 +1,43 @@
+# Sources & credits
+
+All footage and photos from Wikimedia Commons. Narration audio: user-provided voiceover.
+
+- **$1.5 hot-dog combo at Costco Wholesale Queens, October 21 2023, New York.jpg** — Deans Charbal — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:$1.5_hot-dog_combo_at_Costco_Wholesale_Queens,_October_21_2023,_New_York.jpg
+- **$1.5 hot-dog combo at Costco Wholesale Queens, October 21 2023, New York 2.jpg** — Deans Charbal — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:$1.5_hot-dog_combo_at_Costco_Wholesale_Queens,_October_21_2023,_New_York_2.jpg
+- **Costco Checkout Line In North Plainfield NJ.png** — Curlyrnd — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Costco_Checkout_Line_In_North_Plainfield_NJ.png
+- **Costco SSF interior.JPG** — BrokenSphere — CC BY-SA 3.0 — https://commons.wikimedia.org/wiki/File:Costco_SSF_interior.JPG
+- **Costco Wholesale Club.jpg** — Jacob Blanck — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Costco_Wholesale_Club.jpg
+- **Entrance to Costco store with ID scanners installed.jpg** — Nielsoncaetanosalmeron — CC BY 4.0 — https://commons.wikimedia.org/wiki/File:Entrance_to_Costco_store_with_ID_scanners_installed.jpg
+- **Food Court of Costco Wholesale (30503545035).jpg** — GoToVan from Vancouver, Canada — CC BY 2.0 — https://commons.wikimedia.org/wiki/File:Food_Court_of_Costco_Wholesale_(30503545035).jpg
+- **Food court at Costco Wholesale Queens, October 21 2023, New York 2.jpg** — Deans Charbal — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Food_court_at_Costco_Wholesale_Queens,_October_21_2023,_New_York_2.jpg
+- **James Sinegal (cropped).jpg** — US Department of Labor — Public domain — https://commons.wikimedia.org/wiki/File:James_Sinegal_(cropped).jpg
+- **Vertical Formal SolPrice GoldOnCard.jpg** — Website — Public domain — https://commons.wikimedia.org/wiki/File:Vertical_Formal_SolPrice_GoldOnCard.jpg
+- **Boxes of Nissin Cup Noodles on pallets at Costco, SSF ECR.JPG** — BrokenSphere — CC BY-SA 3.0 — https://commons.wikimedia.org/wiki/File:Boxes_of_Nissin_Cup_Noodles_on_pallets_at_Costco,_SSF_ECR.JPG
+- **Costco Kaohsiung interior.jpg** — Benlisquare — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Costco_Kaohsiung_interior.jpg
+- **Costcoheadquarters.jpg** — Coolcaesar — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Costcoheadquarters.jpg
+- **FedMart, San Antonio, Texas 1979.jpg** — Costaricky — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:FedMart,_San_Antonio,_Texas_1979.jpg
+- **FedMart Discount Store Logo.png** — Fed-Mart Co. — Public domain — https://commons.wikimedia.org/wiki/File:FedMart_Discount_Store_Logo.png
+- **Icelandic Costco membership card.jpg** — Drumstick21 — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Icelandic_Costco_membership_card.jpg
+- **In Costco North Taichung 14.jpg** — Alika113 — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:In_Costco_North_Taichung_14.jpg
+- **L-13-08-08-A.130 (9464455127).jpg** — US Department of Labor — Public domain — https://commons.wikimedia.org/wiki/File:L-13-08-08-A.130_(9464455127).jpg
+- **Price Club logo.png** — Price Costco International, Inc. — Public domain — https://commons.wikimedia.org/wiki/File:Price_Club_logo.png
+- **Price Club shopping cart.jpg** — Amin Eshaiker — CC BY-SA 3.0 — https://commons.wikimedia.org/wiki/File:Price_Club_shopping_cart.jpg
+- **Airplanes - Hangars - E & R shop doors. Rockwell Field, Calif - NARA - 17338930.jpg** — Unknown authorUnknown author or not provided — Public domain — https://commons.wikimedia.org/wiki/File:Airplanes_-_Hangars_-_E_%26_R_shop_doors._Rockwell_Field,_Calif_-_NARA_-_17338930.jpg
+- **Checkouts at 1st Floor, Costco Neihu Warehouse 20161229.jpg** — 玄史生 — CC0 — https://commons.wikimedia.org/wiki/File:Checkouts_at_1st_Floor,_Costco_Neihu_Warehouse_20161229.jpg
+- **Christmas in September - Too Soo - Costco in New Orleans.jpg** — Bart Everson — CC BY 2.0 — https://commons.wikimedia.org/wiki/File:Christmas_in_September_-_Too_Soo_-_Costco_in_New_Orleans.jpg
+- **Costco. Samples. (370299570).jpg** — Sandra Cohen-Rose and   Colin Rose from Montreal, Canada — CC BY 2.0 — https://commons.wikimedia.org/wiki/File:Costco._Samples._(370299570).jpg
+- **Costco. Samples (370290648).jpg** — Sandra Cohen-Rose and   Colin Rose from Montreal, Canada — CC BY 2.0 — https://commons.wikimedia.org/wiki/File:Costco._Samples_(370290648).jpg
+- **Costco Kadoma.jpg** — Mr.ちゅらさん — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Costco_Kadoma.jpg
+- **Guests Walking into Costco Neihu Warehouse Entrance 20160320.jpg** — 玄史生 — CC0 — https://commons.wikimedia.org/wiki/File:Guests_Walking_into_Costco_Neihu_Warehouse_Entrance_20160320.jpg
+- **In Costco North Taichung 06.jpg** — Alika113 — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:In_Costco_North_Taichung_06.jpg
+- **Social distancing at the Costco in North Brunswick, New Jersey 3577.jpg** — Richard Arthur Norton (1958- ) — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Social_distancing_at_the_Costco_in_North_Brunswick,_New_Jersey_3577.jpg
+- **Wall Street - New York Stock Exchange.jpg** — Carlos Delgado — CC BY-SA 3.0 — https://commons.wikimedia.org/wiki/File:Wall_Street_-_New_York_Stock_Exchange.jpg
+- **COSTCO gas station.jpg** — Wikideas1 — CC0 — https://commons.wikimedia.org/wiki/File:COSTCO_gas_station.jpg
+- **COSTCO store in Eau Claire.jpg** — Wikideas1 — CC0 — https://commons.wikimedia.org/wiki/File:COSTCO_store_in_Eau_Claire.jpg
+- **Costco - geograph.org.uk - 662010.jpg** — Darrin Antrobus — CC BY-SA 2.0 — https://commons.wikimedia.org/wiki/File:Costco_-_geograph.org.uk_-_662010.jpg
+- **Costco Wholesale, Leeds - geograph.org.uk - 5016854.jpg** — Mark Anderson — CC BY-SA 2.0 — https://commons.wikimedia.org/wiki/File:Costco_Wholesale,_Leeds_-_geograph.org.uk_-_5016854.jpg
+- **Costco before Labour Day 2026 - 01.jpg** — Sikander — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Costco_before_Labour_Day_2026_-_01.jpg
+- **Costco warehouse Sheffield - geograph.org.uk - 602234.jpg** — Steve  F — CC BY-SA 2.0 — https://commons.wikimedia.org/wiki/File:Costco_warehouse_Sheffield_-_geograph.org.uk_-_602234.jpg
+- **Forklift Operator Smile.jpg** — Marius140% — CC BY-SA 4.0 — https://commons.wikimedia.org/wiki/File:Forklift_Operator_Smile.jpg
+- **The Vice President goes to Costco.webm** — <a rel="nofollow" class="external text" href="https://www.youtube.com/user/whitehouse">The White House</a> — Public domain — https://upload.wikimedia.org/wikipedia/commons/3/37/The_Vice_President_goes_to_Costco.webm
+- **20200313 - MontrealTV - Folie au Costco à Ottawa en raison du Coronavirus.webm** — Montreal.TV — CC BY 3.0 — https://upload.wikimedia.org/wikipedia/commons/e/e5/20200313_-_MontrealTV_-_Folie_au_Costco_%C3%A0_Ottawa_en_raison_du_Coronavirus.webm
